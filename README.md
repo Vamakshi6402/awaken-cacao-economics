@@ -1,4 +1,4 @@
-# Awaken Cacao Value-Chain Economics
+# Awaken Foundation – Economic Evaluation Framework for the Cacao Value Chain
 
 **Author:** Vamakshi Chaturvedi  
 **Role:** Volunteer Economist / Lead Author  
