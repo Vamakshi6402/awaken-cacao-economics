@@ -27,8 +27,8 @@ Econometrics · Impact Evaluation · Causal Inference · Development Economics �
 ---
 
 ### 🌐 Related Links
-- **LinkedIn Portfolio:** [Vamakshi Chaturvedi](https://www.linkedin.com/in/vamakshi-chaturvedi-283827206)  
-- **ORCID ID:** [0009-0003-3307-783X](https://orcid.org/0009-0003-3307-783X)
+- **My LinkedIn Profile:** [Vamakshi Chaturvedi](https://www.linkedin.com/in/vamakshi-chaturvedi-283827206)  
+- **My ORCID ID:** [0009-0003-3307-783X](https://orcid.org/0009-0003-3307-783X)
 
 ---
 
